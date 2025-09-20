@@ -3,7 +3,7 @@
 🎓 Data Science Master's Student At Saarland University, Germany<br/>
 🤖 Exploring World of AI and learning along the way.<br/>
 🎯 Goal: Become the Number 1 Data Scientist!!<br/>
-▶️ I share my experiences living in Germany as an international student on [Youtube](https://www.youtube.com/@NISHANTVERSE22)
+
 
 
 ## 🌐 Socials:
